@@ -1,0 +1,1 @@
+# Cerberus-ETC-Miner-v1.0
